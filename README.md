@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @tauhidz
+- 👀 I’m interested in computer science, game dev, cyber security and sound design 
+- 🌱 I’m currently learning computer science, netwokring and java in college
+- 💞️ I’m looking to collaborate on anything with anyone
+- 📫 Email me if you wanna reach out: tauhidzra@gmail.com 
